@@ -1,4 +1,4 @@
-# mimagdaraog.github.io
-Michaela Magdaraog
+## mimagdaraog.github.io
+*Michaela Magdaraog*
 
-LG Brebeuf
+LG **Brebeuf**
