@@ -1,7 +1,4 @@
-
-![gyuuuuu.png](https://github.com/mimagdaraog/mimagdaraog.github.io/blob/main/gyuuuuu.png)
-
-pogi ni choi beomgyu
+![gyuuuuu](https://github.com/mimagdaraog/mimagdaraog.github.io/blob/main/gyuuuuu.png)
 
 stream beomgyu's covers! (also stan txt!!)
 
