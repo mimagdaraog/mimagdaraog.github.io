@@ -1,5 +1,6 @@
 
-![]()
+![gyuuuuu.png](https://github.com/mimagdaraog/mimagdaraog.github.io/blob/main/gyuuuuu.png)
+pogi ni choi beomgyu
 
 wari wari
 
