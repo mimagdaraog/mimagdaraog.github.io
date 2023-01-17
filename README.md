@@ -1,4 +1,4 @@
-![gyuuuuu](https://github.com/mimagdaraog/mimagdaraog.github.io/blob/main/gyuuuuu.png)
+![gyuuuuu](https://github.com/mimagdaraog/mimagdaraog.github.io/blob/main/gyuuuuu.png?raw=true)
 
 stream beomgyu's covers! (also stan txt!!)
 
